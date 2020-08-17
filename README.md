@@ -1,4 +1,4 @@
-### Hi there 👋
+### 日拱一卒无尽有，功不唐捐终入海。
 
 <!--
 **TANG-JUAN/TANG-JUAN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
